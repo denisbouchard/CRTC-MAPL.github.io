@@ -1,0 +1,2 @@
+# CRTC-MAPL.github.io
+To qualify as Canadian content, a musical selection must generally fulfil at least two of the following conditions M music the music is composed entirely by a Canadian  A artist the music is, or the lyrics are, performed principally by a Canadian  P performance the musical selection consists of a live performance in Canada, or  performed wholly in Canada and broadcast live in Canada  L lyrics the lyrics are written entirely by a Canadian 
